@@ -1,0 +1,1 @@
+# msy-toyama.github.io
